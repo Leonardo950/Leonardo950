@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Leonardo950 😁
+## Bem-vindo(a) ao perfil Leonardo950 👍
 
  <div>
    <a href="https://github.com/Leonardo950">
